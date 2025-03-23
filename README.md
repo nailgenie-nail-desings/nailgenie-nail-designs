@@ -1,6 +1,6 @@
-# NailGenie: Nail Designs AI
+# NailGenie: Beautify your nail designs with just your words.
 
-Beautify your nail designs with just your words.
+
 
 ## Try it Now
 
