@@ -48,3 +48,6 @@ NailGenie is an AI-powered nail design platform that allows beauty enthusiasts t
 ## License
 
 - [NailGenie License Agreement](LICENSE)
+
+## Related Resources
+- [Hacker news](https://news.ycombinator.com/item?id=43450557)
