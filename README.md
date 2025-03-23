@@ -51,3 +51,11 @@ NailGenie is an AI-powered nail design platform that allows beauty enthusiasts t
 
 ## Related Resources
 - [Hacker news](https://news.ycombinator.com/item?id=43450557)
+- [DevPost](https://devpost.com/software/nailgenie-nail-designs)
+- [SourceForge](https://sourceforge.net/projects/nailgenie/)
+- [youtube](https://www.youtube.com/@%E9%99%88%E5%AE%87%E7%BF%94-x2b)
+- [Lovable](https://launched.lovable.app/nailgenie)
+- [r/SideProject](https://www.reddit.com/r/SideProject/comments/1jhqosp/i_built_nailgenie_an_ai_tool_that_lets_users_edit/)
+
+
+
