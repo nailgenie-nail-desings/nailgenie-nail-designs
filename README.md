@@ -60,6 +60,27 @@ NailGenie is an AI-powered nail design platform that allows beauty enthusiasts t
 - [twitter](https://x.com/nail_genie_hq)
 - [medium](https://medium.com/@yxchen1994/the-best-nail-design-tools-in-2025-from-virtual-try-on-to-conversational-ai-4f5a427a45b4)
 - [AlternativeTo](https://alternativeto.net/software/nailgenie/about/)
+- [sakura.ne.jp](http://www15420ui.sakura.ne.jp/snapblog/diary/class/20081129_02.htm#wb)
+- [interactions.acm.org](https://interactions.acm.org/blog/view/embodied-games-from-nyu-itp/comment_added#comments)
+- [veented](https://veented.ticksy.com/ticket/3606708)
+- [xrea](http://eivissa.s3.xrea.com/ClubSantAntoni/)
+- [ualberta](https://icon4.biology.ualberta.ca/scientific-organizing-committee/#comment-660491)
+- [zebra](https://developer.zebra.com/blog/ai-gets-mind-its-own-could-be-how-skynet-starts#comment-53922)
+- [opensuse](https://hackweek.opensuse.org/projects/early-stage-kdump-support)
+- [tributearchive](https://www.tributearchive.com/resources/2bc817b7-9db2-44d1-a919-0115b60711b3/finding-the-right-grief-counselor)
+- [abantecart](https://forum.abantecart.com/index.php?topic=8552.0)
+- [hackmd](https://hackmd.io/pvbO02D9ROWtJu1ODHq10Q?utm_source=comment-card&utm_medium=icon)
+- [educa](https://www.educa.jcyl.es/blogs/en/leyendo/fase-provincial-burgos-i-certamen-lectura-publico)
+- [hhh.com.tw](https://hhh.com.tw/forum/detail?id=1545&page=4#23)
+- [webkit.dti.ne.jp](https://webkit.dti.ne.jp/bbs1/mekahouse/mekag/)
+- [as-cn-video.rockwool](https://as-cn-video.rockwool.com/7-strengths-testing-thermal)
+- [shipany](https://shipany.ai/zh/showcase)
+
+
+
+
+
+
 
 
 
