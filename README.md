@@ -83,7 +83,7 @@ NailGenie is an AI-powered nail design platform that allows beauty enthusiasts t
 - [gea](https://webinar.gea.com/gea09ammoniadavidchristine3mp4)
 - [ddo.jp](http://hktagb.ddo.jp/diarypro-vb/diary.cgi?no=5)
 - [pvp.iq.pl](http://www.pvp.iq.pl/thread-5012-post-27407.html#pid27407)
-- [archivists](https://www2.archivists.org/statements/saa-council-statement-on-black-lives-and-archives#comment-6892)
+- [powerappsportals](https://www2.odoe.org/statements/saa-council-statement-on-black-lives-and-archives#comment-6892)
 - [twentythree](https://bl.twentythree.com/alment-inside-historisk-retssag-er)
 - [bccampus](https://scope.bccampus.ca/mod/forum/discuss.php?d=27908#p109755)
 - [cgscholar](https://cgscholar.com/community/profiles/user-46780/updates/53640)
@@ -101,8 +101,27 @@ NailGenie is an AI-powered nail design platform that allows beauty enthusiasts t
 
 
 
-
-
+- [wixsite](https://akstopseo.wixsite.com/mysite/post/here-the-best-office-furniture-manufacturers-2021)
+- [interactions.acm.org](https://interactions.acm.org/blog/view/bias/comment_added#comments)
+- [provenexpert](https://www.provenexpert.com/en-us/yxchen1994/)
+- [english.cam.ac.uk](https://www.english.cam.ac.uk/spenseronline/review/item/46.2.10/#comment-10239)
+- [biglobe](http://cgi.www5e.biglobe.ne.jp/~manbow/lineage2/diary/anii/diary.cgi)
+- [benchmarkemail](https://community.benchmarkemail.com/users/9F652/newsletter/Prayer--Eucharist--Mission--Revival-)
+- [educa](https://www.educa.jcyl.es/blogs/es/ivcentenariocervantes/cervantes-anfitrion-shakespeare-valladolid)
+- [m056104.ppp.asahi-net.or.jp](http://m056104.ppp.asahi-net.or.jp/cgi/patio_rakutaku/regist.cgi)
+- [academicexpert](https://academicexpert.wixstudio.com/mysite/post/making-complicated-essays-easy-with-primary-research-methods)
+- [smbsgymvolontaire](https://smbsgymvolontaire.sportsregions.fr/actualites-du-club/documents-de-la-rentree-20242025-1134501)
+- [haikudeck](https://www.haikudeck.com/presentations/OKSxhfalA7)
+- [velog](https://velog.io/@blackbean99/%EA%B0%9C%EB%B0%9C%EC%9E%90%EA%B0%80-%EC%9E%90%EA%B2%A9%EC%A6%9D%EC%9D%84-%EC%99%9C-%EB%94%B0)
+- [paragon-softwareparagon-software](https://developers.paragon-software.com/community/profile/httpsdestiny-matrix-cc/)
+- [dcinside](https://gall.dcinside.com/board/view/?id=igjdivision&no=7749&page=1)
+- [devfolio](https://devfolio.co/projects/sei-copilot-de02)
+- [odoe](https://odoe.powerappsportals.us/en-US/forums/crep/7870886d-2469-ee11-a81c-001dd806202e?msCorrelationId=9bd62f86-2d15-4e54-9b82-11136b87fc67&instanceId=08384e570966e538bf75c6d5acb5b6e22087e7835d320671366dde7bf90807f5&tenantId=aa3f6932-fa7c-47b4-a0ce-a598cad161cf&portalId=6dd10c6b-c0ea-4952-bb98-d27755601545&orgId=1f82ae49-c85f-4f22-a649-130f24932932&environmentId=b914023e-9014-4249-90cc-5f93e67947b8&portalApp=site-6dd10c6b-c0ea-4952-bb98-d27755601545-GCv&portalType=CustomerPortal&portalProductionOrTrialType=Production&licenseType=Dynamics365&portalVersion=9.7.2.7&islandId=&portalDomain=https%3A%2F%2Fodoe.powerappsportals.us&page=2)
+- [birthday](https://birthday.2-d.jp/bbs/read.cgi?mode=&no=1393&p=1)
+- [cinvestav](https://difusion.cinvestav.mx/La-Academia/Eventos-academia/emodule/7075/eitem/4888)
+- [soundandvision](https://www.soundandvision.com/content/wrap-audio-expo-north-america-2023#comment-560055)
+- [lingvolive](https://www.lingvolive.com/en-us/community/posts/230857)
+- [enseeiht](https://cavale.enseeiht.fr/redmine/issues/1638)
 
 
 
