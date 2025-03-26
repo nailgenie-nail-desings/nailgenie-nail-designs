@@ -75,6 +75,38 @@ NailGenie is an AI-powered nail design platform that allows beauty enthusiasts t
 - [webkit.dti.ne.jp](https://webkit.dti.ne.jp/bbs1/mekahouse/mekag/)
 - [as-cn-video.rockwool](https://as-cn-video.rockwool.com/7-strengths-testing-thermal)
 - [shipany](https://shipany.ai/zh/showcase)
+- [maxperformanceinc](https://forums.maxperformanceinc.com/forums/album.php?albumid=1937&pictureid=14282)
+- [noosfero](https://noosfero.ufba.br/freeaccounts/blog/apk-download#!)
+- [dinnerwithjulie](https://www.dinnerwithjulie.com/2021/11/03/plant-based-deep-n-delicious-chocolate-cake/#comment-1053034)
+- [dinstudio](http://www.i21kf.dinstudio.se/blog_22_12.html)
+- [documentfoundation](https://bugs.documentfoundation.org/show_bug.cgi?id=69280)
+- [gea](https://webinar.gea.com/gea09ammoniadavidchristine3mp4)
+- [ddo.jp](http://hktagb.ddo.jp/diarypro-vb/diary.cgi?no=5)
+- [pvp.iq.pl](http://www.pvp.iq.pl/thread-5012-post-27407.html#pid27407)
+- [archivists](https://www2.archivists.org/statements/saa-council-statement-on-black-lives-and-archives#comment-6892)
+- [twentythree](https://bl.twentythree.com/alment-inside-historisk-retssag-er)
+- [bccampus](https://scope.bccampus.ca/mod/forum/discuss.php?d=27908#p109755)
+- [cgscholar](https://cgscholar.com/community/profiles/user-46780/updates/53640)
+- [cinvestav](https://difusion.cinvestav.mx/La-Academia/Galer%C3%ADa/emodule/6215/eitem/515)
+- [puglia](https://edottosgd.sanita.puglia.it/knowledgetree/action.php?kt_path_info=ktcore.actions.document.discussion&fDocumentId=16186&fThreadId=240&action=viewThread)
+- [interacao.espm.br](https://www.interacao.espm.br/post/desentoca-2020)
+- [leadoo](https://webinar.leadoo.com/kan-du-grunderna-i-1)
+- [codenewbie](https://community.codenewbie.org/zorian/5-best-email-apis-for-developers-an-overview-5g43/comments)
+- [suzujrtugofwar](https://suzujrtugofwar.blog.bai.ne.jp/?eid=109124)
+- [cari.com.my](https://b.cari.com.my/home.php?mod=space&uid=2223192&do=album&picid=150517)
+- [halfmoon](https://is.halfmoon.jp/thankyou/uni_patio/uni_patio.cgi)
+- [doyogawithme](https://www.doyogawithme.com/blog/how-wheel-pose#comment-157180)
+
+
+
+
+
+
+
+
+
+
+
 
 
 
