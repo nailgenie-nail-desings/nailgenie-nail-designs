@@ -96,7 +96,21 @@ NailGenie is an AI-powered nail design platform that allows beauty enthusiasts t
 - [cari.com.my](https://b.cari.com.my/home.php?mod=space&uid=2223192&do=album&picid=150517)
 - [halfmoon](https://is.halfmoon.jp/thankyou/uni_patio/uni_patio.cgi)
 - [doyogawithme](https://www.doyogawithme.com/blog/how-wheel-pose#comment-157180)
-
+- [nintendo](https://www.nintendo-master.com/jeux/switch/emio/preview)
+- [lingvolive](https://www.lingvolive.com/ru-ru/community/posts/1501343)
+- [wox](https://sorairo.bbs.wox.cc/#form)
+- [blendswap](https://blendswap.com/blend/31259)
+- [blendswap2](https://www.blendswap.com/blend/21290)
+- [synfig](https://www.synfig.org/issues/thebuggenie/synfig/issues/7180)
+- [industryarena](https://en.industryarena.com/forum/showthread.php?t=457780&p=2611655#post2611655)
+- [prismo](https://prismo.fedibird.com/posts/9c17bd55-1869-4821-98ab-f4ea1ede92d3)
+- [volejbalrepy](https://volejbalrepy.proweb.cz/rozpisy/kde-najdu-spolehlivy-obchod-s-jednorazovymi-elektronickymi-cigaretami-6058/prispevek-vytvoren#pwcmfef-post-56045)
+- [saveourmonarchs](https://www.saveourmonarchs.org/blog/whats-in-the-name-of-a-monarch-butterfly)
+- [muvizu](https://videos.muvizu.com/Profile/Public/latest.aspx?username=kimberley228k)
+- [offcourse](https://offcourse.co/users/activity/14228/)
+- [flokii](http://www.flokii.com/questions/view/4042/boost-your-telegram-account-what-are-your-best-strategies)
+- [khadas](https://www.khadas.com/post/khadas-vim3-won-t-use-s922x)
+ 
 
 
 
