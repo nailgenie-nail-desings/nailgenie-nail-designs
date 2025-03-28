@@ -110,6 +110,7 @@ NailGenie is an AI-powered nail design platform that allows beauty enthusiasts t
 - [offcourse](https://offcourse.co/users/activity/14228/)
 - [flokii](http://www.flokii.com/questions/view/4042/boost-your-telegram-account-what-are-your-best-strategies)
 - [khadas](https://www.khadas.com/post/khadas-vim3-won-t-use-s922x)
+- [crunchbase](https://www.crunchbase.com/organization/destiny-matrix)
  
 
 
