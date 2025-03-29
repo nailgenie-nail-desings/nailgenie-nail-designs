@@ -49,7 +49,7 @@ NailGenie is an AI-powered nail design platform that allows beauty enthusiasts t
 
 - [NailGenie License Agreement](LICENSE)
 
-## Related Resources
+## Testimonial Resources
 - [Hacker news](https://news.ycombinator.com/item?id=43450557)
 - [DevPost](https://devpost.com/software/nailgenie-nail-designs)
 - [SourceForge](https://sourceforge.net/projects/nailgenie/)
@@ -110,8 +110,22 @@ NailGenie is an AI-powered nail design platform that allows beauty enthusiasts t
 - [offcourse](https://offcourse.co/users/activity/14228/)
 - [flokii](http://www.flokii.com/questions/view/4042/boost-your-telegram-account-what-are-your-best-strategies)
 - [khadas](https://www.khadas.com/post/khadas-vim3-won-t-use-s922x)
-- [crunchbase](https://www.crunchbase.com/organization/destiny-matrix)
-- [crunchbase2](https://www.crunchbase.com/organization/nailgenie-best-nail-design-tool)
+- [yummymummykitchen](https://www.yummymummykitchen.com/2023/08/french-gimlet.html/comment-page-1?unapproved=91839&moderation-hash=1057ab9697c702141d0a0b8d63bd21c6#comment-91839)
+- [farming-mods](https://farming-mods.com/news/vydelennye_servera_i_prilozhenija/2018-07-14-33)
+- [pixel77](https://pixel77.com/how-to-use-photography-in-graphic-design/#comment-218216)
+- [yarnharlot](https://www.yarnharlot.ca/2024/11/the-state-of-things-34-days/#comment-1706146)
+- [onlineslangdictionary](http://onlineslangdictionary.com/meaning-definition-of/raspberry-pi)
+- [highlite](https://forum.highlite.com/showthread.php?tid=1831&page=2)
+- [poradna](https://pc.poradna.net/flashes/3004116-linux-ve-windows-umi-gui-aplikace#r3290114)
+- [swap-bot](https://www.swap-bot.com/swap/show/130849#comment-955691)
+- [informe21](https://www.informe21.com/post/gustavo-dudamel-brill%C3%B3-en-la-reapertura-de-la-catedral-de-notre-dame)
+- [pampling](https://www.pampling.com/comunidad/usuarios/67962-paulagarlo)
+- [fazier](https://fazier.com/launches/nailgenie)
+- [betterreading](https://www.betterreading.com.au/news/qa-michael-connelly-author-of-the-waiting/#comment-467787)
+- [lunchboxdad](https://www.lunchboxdad.com/2021/03/how-to-make-easter-bunny-lunch-for-your.html?sc=1743239913538#c5090241220652785819)\
+- [readweb](https://readweb.ai/en/page/535850c594386f772b2bf0f86290515f)
+- [readweb](https://readweb.ai/en/page/d3ac3665fdf1e938dc689a180bf61aca)
+- [wixstudio](https://fnfansite.wixstudio.com/fridaynightfansite/forum/skin-mods/_hiii-1)
  
 
 
@@ -138,9 +152,26 @@ NailGenie is an AI-powered nail design platform that allows beauty enthusiasts t
 - [soundandvision](https://www.soundandvision.com/content/wrap-audio-expo-north-america-2023#comment-560055)
 - [lingvolive](https://www.lingvolive.com/en-us/community/posts/230857)
 - [enseeiht](https://cavale.enseeiht.fr/redmine/issues/1638)
-
-
-
+- [24liveblog](https://www.24liveblog.com/live/3811224732839487676)
+- [24liveblog](https://www.24liveblog.com/live/3811227377549263074)
+- [utahtech](https://donate.utahtech.edu/page.aspx?pid=305&dgs980=3&rid980=620&tid980=87)
+- [invenglobal](https://www.invenglobal.com/forum/lostark/141-guides-tips/9374-class-guides-collection-pve-leveling)
+- [offcourse](https://offcourse.co/users/activity/718916/)
+- [keenspot](http://godchild.keenspot.com/comic/chapter-3-page-05/#comment-1094431)
+- [tribe](https://tribe.cucas.cn/question/16109)
+- [hhh](https://hhh.com.tw/forum/detail?id=1545&page=4#24)
+- [niadd](https://es.niadd.com/statuses/1059984.html)
+- [asistenciaalsuicida](https://www.asistenciaalsuicida.org.ar/post/2-de-mayo-d%C3%ADa-internacional-contra-el-bullying-o-el-acoso-escolar)
+- [briian](https://123.briian.com/forum.php?mod=viewthread&tid=11987)
+- [nurse24](https://www.nurse24.it/forum/sprunki-mods-t159553.html#p3437290)
+- [city](https://www.city.fi/blogit/pinthefuckups/kalpeanaama+torilla+ja+muita+kertomuksia/124511)
+- [hyperlite](https://community.hi-hyperlite.com/showthread.php?tid=74&pid=4088#pid4088)
+- [heritage](https://myheritage.heritage.edu/ICS/Academics/RDG/RDG__502/1920_SU-RDG__502-10/Blog_1.jnz?portlet=Blog_1&screen=Main&screenType=change)
+- [heritage](https://myheritage.heritage.edu/ICS/Academics/RDG/RDG__502/1920_SU-RDG__502-10/Blog_1.jnz?portlet=Blog_1&screen=View+Post&screenType=next&&Id=161b663d-fac5-46d4-ba8d-4d293943c686)
+- [pixabay](https://pixabay.com/users/49587810/)
+- [pixabay](https://pixabay.com/users/49587875/)
+- [crunchbase](https://www.crunchbase.com/organization/destiny-matrix)
+- [crunchbase2](https://www.crunchbase.com/organization/nailgenie-best-nail-design-tool)
 
 
 
