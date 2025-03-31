@@ -126,6 +126,7 @@ NailGenie is an AI-powered nail design platform that allows beauty enthusiasts t
 - [readweb](https://readweb.ai/en/page/535850c594386f772b2bf0f86290515f)
 - [readweb](https://readweb.ai/en/page/d3ac3665fdf1e938dc689a180bf61aca)
 - [wixstudio](https://fnfansite.wixstudio.com/fridaynightfansite/forum/skin-mods/_hiii-1)
+- [wix](https://nl.wix.com/blog/post/15-toffe-wix-website-voorbeelden-die-je-inspireren)
  
 
 
